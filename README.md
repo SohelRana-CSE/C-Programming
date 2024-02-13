@@ -1,1 +1,1 @@
-This all codes, I was practiced at 2020-2022
+"Experience is the key to success, and I am proud to say that I have practiced every code in this repository between 2020 and 2022. With my dedication and hard work, I am confident that I can take on any challenge that comes my way."20 and 2022."
